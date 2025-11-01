@@ -59,8 +59,8 @@ Setiap gigitan adalah bentuk cinta — karena kebahagiaan bisa dimulai dari dona
 
 ## 📞 Kontak
 
-📱 **WhatsApp:** 
-🌐 **Website:** [https://firdausdonuts.com](https://firdausdonuts.com)
+📱 **WhatsApp:** -
+🌐 **Website:** comming soon
 
 ---
 
